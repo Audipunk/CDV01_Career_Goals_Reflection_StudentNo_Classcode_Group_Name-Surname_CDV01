@@ -19,8 +19,14 @@ By completing this reflection, you will gain a clearer understanding of your car
 - **Name:**
  **Muneer Abrahams**
 - **Date:**
+  **June 2024
 - **Current Role/Position:**
+  **Unemployed** **Student**
 - **Field of Interest:**
+  **Software Development**
+  **Airline Industry**
+  **Travel**
+  **Engineering**
 
 ### Part 1: Self-Assessment Reflection
 
